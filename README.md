@@ -1,3 +1,7 @@
+![Image](https://github.com/user-attachments/assets/07bc14ba-3ca0-4844-ab1a-1df1ad92c2b6)
+
+![Image](https://github.com/user-attachments/assets/361f03a1-d757-4682-ba61-d4d8412b3177)
+
 ✝️ Andrew Aggrey Ministries ❤️
 
 https://docs.google.com/document/d/1EhsMlVDQqhrxRee0ed8oQ_-WiK25OgnlWzxHqfif9Nw
